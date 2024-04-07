@@ -1,13 +1,13 @@
 
 # Deep Dish Pizza 
 
-1. Heat cast iron in oven with a little oil and lots of chopped garlic
+1. Heat cast iron in the oven with a little oil and lots of chopped garlic, pepper, oregano
 2. Add over-risen dough
-2. Liberally apply more garlic
+2. Liberally apply more garlic, pepper, oregano
 3. Add Meat
 4. Add Cheese
 5. Add Sauce
-6. Add Parmesan and more garlic
+6. Add Parmesan and more garlic, pepper, oregano
 7. Bake for 30-40 minutes at 375
 
 
