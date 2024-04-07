@@ -15,4 +15,4 @@
 
 1. Sausage & Olive (Marinara)
 2. Shrimp & Scallop (Olive oil or alfredo sauce. Lotsa garlic either way. Calzoning is suggested)
-3. Habanero Ham w/ Ricotta - Pickled Habaneros Suggested. Use enough to alarm observers. The Ricotta and Mozzarella will absorb the heat. (Marinara)
+3. Habanero Ham w/ Ricotta - Pickled Habaneros Suggested. Use enough to alarm observers. The ricotta will absorb the heat. (Marinara)
