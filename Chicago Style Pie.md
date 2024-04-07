@@ -1,8 +1,11 @@
 
 # Chicago Style Deep Dish Pizza 
 
-1. Heat cast iron in the oven with a bit of oil and lots of chopped garlic, pepper, oregano
-2. Add over-risen dough
+1. Heat cast iron in the oven with oil and chopped garlic, pepper, and oregano.
+2. Let it cool a bit
+3. Add well-risen dough
+4. Spread out in the pan
+5. Let dough rest (optional)
 2. Liberally apply more garlic, pepper, oregano
 3. Add Meat
 4. Add Cheese
